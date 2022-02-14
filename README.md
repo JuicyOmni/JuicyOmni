@@ -1,0 +1,5 @@
+- 👋 Yo!, I’m @JuicyOmni.
+- 👀 I’m interested in ... i have no idea.
+- 🌱 I’m currently learning how to code cuz i have 0 experience whatsoever.
+- 💞️ I’m looking to collaborate on nothing atm, i just want learn.
+- 📫 How to reach me ... eh
